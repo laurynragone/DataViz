@@ -1,2 +1,2 @@
 # DataViz
-My namem is Lauryn Ragone. I am a Junior at Lehigh University and I am majoring in English and Journalism. I am also in the 5 year Master's in Education program. Over the summer I participated in the Lehigh in Paris program. 
+My name is Lauryn Ragone. I am a Junior at Lehigh University and I am majoring in English and Journalism. I am also in the 5 year Master's in Education program. My goal is to become a high school English teacher and I hope to be the adviser for the school newsaper. Over the summer I participated in the Lehigh in Paris study abroad program where I studied French Architecture and history. During my time abroad, I found a love for new foods, public space and art. Some of my other interests include traveling, sailing and cooking. 
